@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 🙋‍♂️ About Me:
 👨🏻‍💼 Entrepreneur<br>👨🏻‍💻 Web Developer<br>🤖 AI/ML
 
 
